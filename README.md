@@ -7,6 +7,6 @@
 </p>
 
 <p align="center">
-  <a href="https://rentry.co/eterrnalsugar">ʀєɴᴛʀʏ </a> ✦︎
-  <a href="https://pronouns.cc/@EternalSugarCookie">ρʀɴѕ </a> 
+  <a href="https://rentry.co/eternalsugarlover">ʀєɴᴛʀʏ </a> ✦︎
+  <a href="https://eternalsugarcookie.atabook.org/">αтαвooк </a> 
   <br><br>
